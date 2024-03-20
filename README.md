@@ -8,7 +8,7 @@
 
 📫 How to reach me:
    - Email: isabellacarvalhosx@gmail.com
-   - LinkedIn: [Isabella Carvalho](https://www.linkedin.com/in/isabella-oliveira1/)
+   - LinkedIn: [Isabella Carvalho](https://www.linkedin.com/in/isabella-carvalhos/)
 
 😄 Pronouns: She/Her
 
